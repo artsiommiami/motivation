@@ -1,0 +1,2 @@
+# motivation
+Fresh ideas 
